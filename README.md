@@ -14,3 +14,6 @@ Video Demo
 
 https://github.com/user-attachments/assets/499d4e5b-1cc2-4403-8b77-6728692c1c4f
 
+boxigo_mobile APK
+
+https://drive.google.com/file/d/19tqlOJPXkOxx7oAdqgAFjQda--yqZXCd/view?usp=sharing
